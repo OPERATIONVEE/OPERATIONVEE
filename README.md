@@ -24,4 +24,4 @@
 <p align="center"><img width="310" height="309" src="https://files.catbox.moe/gf5nej.webp">
 <p align="center"> >>`𝚈𝚘𝚞 𝚘𝚗𝚕𝚢 𝙻𝙾𝙾𝙺 𝚑𝚞𝚖𝚊𝚗. 𝙰𝚗𝚢𝚘𝚗𝚎 𝚠𝚒𝚝𝚑 𝚎𝚢𝚎𝚜 𝚌𝚊𝚗 𝚜𝚎𝚎 𝚑𝚘𝚠 𝚖𝚎𝚜𝚜𝚎𝚍 𝚞𝚙 𝚊𝚗𝚍 𝚜𝚘𝚞𝚕𝚕𝚎𝚜𝚜 𝚢𝚘𝚞 𝚊𝚛𝚎.`
  <p align="center"> >`𝙸 𝚍𝚘𝚗'𝚝 𝚔𝚗𝚘𝚠 𝚠𝚑𝚢 𝚢𝚘𝚞 𝚍𝚘 𝚒𝚝. 𝙱𝚞𝚝 𝙸 𝚍𝚘𝚗'𝚝 𝚌𝚊𝚛𝚎 𝚎𝚒𝚝𝚑𝚎𝚛.`
-<p align="center"> <a href="https://www.patreon.com/c/myheadhurtssobad" target="_blank">For more songs AND 3FSTINKY announcement !</a> 
+<p align="center"> <a href="https://www.patreon.com/c/myheadhurtssobad?view_as=patron" target="_blank">For more songs AND 3FSTINKY announcement !</a> 
