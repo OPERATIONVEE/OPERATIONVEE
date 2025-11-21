@@ -4,7 +4,7 @@
 <p align="center"> >𝙰𝙻𝙻 𝙲𝚁𝙴𝙳𝙸𝚃 𝙾𝙵 𝚃𝙷𝙴 𝙷𝚄𝙶𝙴 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙶𝙾 𝚃𝙾 𝟹𝙵𝚂𝚃𝙸𝙽𝙺𝚈 𝙶𝙰𝙽𝙶 [𝙶𝚁𝙴𝙰𝚃_𝙳𝙰𝙳]
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/t3lg86.png">
 <p align="center"> >>``𝙷𝚘𝚠 𝚍𝚘 𝙸 𝚋𝚎 𝚘𝚗𝚎 𝚘𝚏, 𝚑𝚘𝚠 𝚍𝚘 𝙸 𝚋𝚎 𝚘𝚗𝚎 𝚘𝚏 𝚢𝚘𝚞?``<img width="30" height="90" src="https://files.catbox.moe/bty7bi.jpg">
-<p align="center"><img width="356" height="432" src="https://files.catbox.moe/95rcf5.webp"> </p>
+<p align="center"><img width="356" height="432" src="https://files.catbox.moe/gxmsvr.webp"> </p>
 <p align="center"> >𝙺𝚗𝚘𝚠𝚗 𝚊𝚜: 𝚅𝙴𝙴 , 𝚂𝙸𝙽𝙺𝙸𝙽𝙶_𝙳𝙰𝚈 , 𝚁𝚇78 , 𝚅𝙴𝚂𝙴𝙽𝚃𝙸 .
   <p align="center"> >𝙱𝙳𝙰𝚈: 𝟷𝟷/𝟷𝟾 . 𝙼𝙸𝙽𝙾𝚁 .
 <p align="center"><img width="900" height="120" src="https://64.media.tumblr.com/cc2adbd92dc7069b1f46d4bb462797ba/34da71684e07522a-56/s1280x1920/3cbfc49b59467019e9a4e95af508185c0a80bf8c.pnj"> </p>
