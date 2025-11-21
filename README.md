@@ -1,7 +1,7 @@
 <p align="center"><img width="1959" height="600" src="https://64.media.tumblr.com/f33e4a4d93291782d23c60603c2179cb/134a4bd4d5cf0a2b-1d/s400x600/fe496feeace38611f129ee37d65c7d90f479aa29.pnj">
 <p align="center">  >>𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘙𝘌𝘈𝘋! 𝘕𝘖𝘛𝘌: 𝘐 𝘞𝘐𝘓𝘓 𝘕𝘖𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 𝘞𝘐𝘛𝘏 𝘈𝘕𝘠𝘖𝘕𝘌 𝘉𝘌𝘓𝘖𝘞 13+ 𝘖𝘙 𝘈𝘉𝘖𝘝𝘌 18+ 𝘜𝘕𝘓𝘌𝘚𝘚 𝘐 𝘒𝘕𝘖𝘞 𝘛𝘏𝘌𝘔 . 𝘐 𝘏𝘈𝘝𝘌 𝘏𝘈𝘋 𝘛𝘏𝘐𝘚 𝘞𝘈𝘙𝘕𝘐𝘕𝘎 𝘍𝘖𝘙 𝘈 𝘓𝘖𝘕𝘎 𝘛𝘐𝘔𝘌 𝘉𝘠 𝘕𝘖𝘞, 𝘐𝘛'𝘚 𝘕𝘖𝘛 '𝘕𝘌𝘞'. 𝘙𝘌𝘈𝘚𝘖𝘕𝘐𝘕𝘎 𝘍𝘖𝘙 𝘛𝘏𝘐𝘚: 𝘛𝘏𝘌 𝘕𝘌𝘞 𝘎𝘌𝘕𝘌𝘙𝘈𝘛𝘐𝘖𝘕 𝘔𝘈𝘒𝘌𝘚 𝘔𝘌 𝘜𝘕𝘊𝘖𝘔𝘍𝘖𝘙𝘛𝘈𝘉𝘓𝘌, 𝘍𝘙𝘖𝘔 𝘛𝘏𝘌𝘐𝘙 '𝘐'𝘮 𝘨𝘰𝘯𝘯𝘢 𝘵𝘰𝘶𝘤𝘩 𝘺𝘰𝘶!' 𝘑𝘖𝘒𝘌𝘚 𝘛𝘖 𝘛𝘏𝘌𝘐𝘙 𝘐𝘔𝘔𝘈𝘛𝘜𝘙𝘌 𝘉𝘌𝘏𝘈𝘝𝘐𝘖𝘙. 𝘈𝘚 𝘍𝘖𝘙 𝘈𝘋𝘜𝘓𝘛𝘚, 𝘐 𝘈𝘔 𝘈 𝘔𝘐𝘕𝘖𝘙 [16] 𝘈𝘕𝘋 𝘚𝘐𝘔𝘗𝘓𝘠 𝘈𝘓𝘞𝘈𝘠𝘚 𝘓𝘌𝘈𝘙𝘕𝘌𝘋 𝘛𝘖 𝘕𝘌𝘝𝘌𝘙 𝘛𝘈𝘓𝘒 𝘛𝘖 𝘈𝘋𝘜𝘓𝘛𝘚 [20+].
 
-<p align="center"> >𝙰𝙻𝙻 𝙲𝚁𝙴𝙳𝙸𝚃 𝙾𝙵 𝚃𝙷𝙴 𝙷𝚄𝙶𝙴 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙶𝙾 𝚃𝙾 𝟹𝙵𝚂𝚃𝙸𝙽𝙺𝚈 𝙶𝙰𝙽𝙶 [𝙶𝚁𝙴𝙰𝚃_𝙳𝙰𝙳]
+<p align="center"> >𝙰𝙻𝙻 𝙲𝚁𝙴𝙳𝙸𝚃 𝙾𝙵 𝚃𝙷𝙴 𝙷𝚄𝙶𝙴 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙶𝙾 𝚃𝙾 𝟹𝙵𝚂𝚃𝙸𝙽𝙺𝚈 𝙶𝙰𝙽𝙶 [𝙶𝚁𝙴𝙰𝚃_𝙳𝙰𝙳 𝚊𝚗𝚍 𝙺𝚒𝚎!]
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/nenpms.webp">
 <p align="center"> >>``𝙷𝚘𝚠 𝚍𝚘 𝙸 𝚋𝚎 𝚘𝚗𝚎 𝚘𝚏, 𝚑𝚘𝚠 𝚍𝚘 𝙸 𝚋𝚎 𝚘𝚗𝚎 𝚘𝚏 𝚢𝚘𝚞?``<img width="30" height="90" src="https://files.catbox.moe/bty7bi.jpg">
 <p align="center"><img width="356" height="432" src="https://files.catbox.moe/gxmsvr.webp"> </p>
