@@ -1,4 +1,4 @@
-<p align="center"><img width="890" height="289" src="https://media.discordapp.net/attachments/1030285206134992946/1453517630907482162/image.png?ex=694dbd48&is=694c6bc8&hm=059cb8df2e0d76887c0f81e04e2414bd281ca3342812c26d1b7079fc9029d50b&=&format=webp&quality=lossless">
+<p align="center"><img width="600" height="500" src="https://files.catbox.moe/8ecvcg.png">
 <p align="center">  >>𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘙𝘌𝘈𝘋! 𝘕𝘖𝘛𝘌: 𝘐 𝘞𝘐𝘓𝘓 𝘕𝘖𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 𝘞𝘐𝘛𝘏 𝘈𝘕𝘠𝘖𝘕𝘌 𝘉𝘌𝘓𝘖𝘞 13+ 𝘖𝘙 𝘈𝘉𝘖𝘝𝘌 18+ 𝘜𝘕𝘓𝘌𝘚𝘚 𝘐 𝘒𝘕𝘖𝘞 𝘛𝘏𝘌𝘔 . 𝘐 𝘏𝘈𝘝𝘌 𝘏𝘈𝘋 𝘛𝘏𝘐𝘚 𝘞𝘈𝘙𝘕𝘐𝘕𝘎 𝘍𝘖𝘙 𝘈 𝘓𝘖𝘕𝘎 𝘛𝘐𝘔𝘌 𝘉𝘠 𝘕𝘖𝘞, 𝘐𝘛'𝘚 𝘕𝘖𝘛 '𝘕𝘌𝘞'. 𝘙𝘌𝘈𝘚𝘖𝘕𝘐𝘕𝘎 𝘍𝘖𝘙 𝘛𝘏𝘐𝘚: 𝘛𝘏𝘌 𝘕𝘌𝘞 𝘎𝘌𝘕𝘌𝘙𝘈𝘛𝘐𝘖𝘕 𝘔𝘈𝘒𝘌𝘚 𝘔𝘌 𝘜𝘕𝘊𝘖𝘔𝘍𝘖𝘙𝘛𝘈𝘉𝘓𝘌, 𝘍𝘙𝘖𝘔 𝘛𝘏𝘌𝘐𝘙 '𝘐'𝘮 𝘨𝘰𝘯𝘯𝘢 𝘵𝘰𝘶𝘤𝘩 𝘺𝘰𝘶!' 𝘑𝘖𝘒𝘌𝘚 𝘛𝘖 𝘛𝘏𝘌𝘐𝘙 𝘐𝘔𝘔𝘈𝘛𝘜𝘙𝘌 𝘉𝘌𝘏𝘈𝘝𝘐𝘖𝘙. 𝘈𝘚 𝘍𝘖𝘙 𝘈𝘋𝘜𝘓𝘛𝘚, 𝘐 𝘈𝘔 𝘈 𝘔𝘐𝘕𝘖𝘙 [17] 𝘈𝘕𝘋 𝘚𝘐𝘔𝘗𝘓𝘠 𝘈𝘓𝘞𝘈𝘠𝘚 𝘓𝘌𝘈𝘙𝘕𝘌𝘋 𝘛𝘖 𝘕𝘌𝘝𝘌𝘙 𝘛𝘈𝘓𝘒 𝘛𝘖 𝘈𝘋𝘜𝘓𝘛𝘚 [20+].
 <p align="center"> >𝙰𝙻𝙻 𝙲𝚁𝙴𝙳𝙸𝚃 𝙾𝙵 𝚃𝙷𝙴 𝙷𝚄𝙶𝙴 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙶𝙾 𝚃𝙾 𝟹𝙵𝚂𝚃𝙸𝙽𝙺𝚈 𝙶𝙰𝙽𝙶 [𝙶𝚁𝙴𝙰𝚃_𝙳𝙰𝙳 𝚊𝚗𝚍 𝙺𝚒𝚎!]
 <p align="center"><img width="100" height="90" src="https://files.catbox.moe/nenpms.webp">
@@ -23,7 +23,7 @@
 <p align="right"> >ꜱɪʟᴇɴᴛ ʜɪʟʟ ɪɴᴄʟᴜᴅɪɴɢ ꜰ
 <p align="right"> >ᴠᴏᴄᴀʟᴏɪᴅ , ꜰɴꜰ [ꜱᴘᴇᴄɪꜰɪᴄᴀʟʟʏ ᴅᴇᴀᴅ ᴀɪʀ]
 <p align="right"> >​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , ​🇧​​🇺​​🇹​ ​🇳​​🇴​​🇹​ ​🇹​​🇭​​🇪​ ​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ , ​🇴​​🇳​​🇱​​🇾​ ​🇹​​🇭​​🇪​ ​🇬​​🇦​​🇲​​🇪​ .
-<p align="center"><img width="299" height="309" src="https://media.discordapp.net/attachments/1030285206134992946/1453528461237817415/Sweater_3.png?ex=694dc75e&is=694c75de&hm=fad58630872a6348614f95214559cb8f06ceee81f18f053b80dd72acd028fdb7&=&format=webp&quality=lossless">
+<p align="center"><img width="299" height="309" src="https://files.catbox.moe/34a3qq.png">
 <p align="center"> >>`​​𝙸 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚜𝚝𝚊𝚢 𝚊𝚜 𝙸 𝚠𝚊𝚗𝚝 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚋𝚎𝚒𝚗𝚐 𝚊𝚋𝚕𝚎 𝚝𝚘 𝚑𝚊𝚝𝚎 𝚢𝚘𝚞.`<img width="50" height="90" src="https://64.media.tumblr.com/bd16b67ffc58ea81d325ebdd847e404c/2836a37a1e129717-e1/s540x810/fdaae4a08ceadd35274162eefea12d5989f1da13.pnj">
  <p align="center"> <img width="100" height="50" src="https://64.media.tumblr.com/65cf2ac84d0d5d1c6cf76b4a4ad83425/6f669be85b9fdd3f-e1/s250x400/75dd312c9385e8e56b73291c5ab6c7e46576e1d7.gifv"><img width="100" height="50" src="https://64.media.tumblr.com/0df6b6c053324b9afc72b392c1b1f024/6f669be85b9fdd3f-49/s250x400/30fa230b4b059b68da2312d6d93d567ed77a15b1.gifv">
 <p align="center"> <a href="https://www.patreon.com/c/myheadhurtssobad?view_as=patron" target="_blank">For more songs AND 3FSTINKY announcement !</a> 
